@@ -1,5 +1,6 @@
 # 🚀 Buy Diablo 4 Gears
 
+👉Buy Diablo 4 Gears：[[https://www.mmomax.com/diablo-4-gears](https://www.mmomax.com/diablo-4-gears)](https://www.mmomax.com/diablo-4-gears)
 About Diablo 4 Season 11: Divine Intervention
 Season 11 brings one of the largest shake-ups Diablo IV has seen, focusing on clearer progression, reduced randomness, and new end-game systems. The season introduces a major combat and progression redesign with a new passive seasonal mechanic called Divine Gifts, offering small but constant blessings from the High Heavens. These powers work automatically (no setup, triggers, or special gear) and benefit all builds in both combat and exploration.
 
